@@ -1,1 +1,0 @@
-# sketch_project_app
